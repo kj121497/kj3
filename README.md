@@ -12,7 +12,7 @@ Users on Instagram freely post as much as they like onto their profiles; therefo
  
 The user to be interviewed will be between the ages of 18 to 29, a student or employee, proficient with technology, and experience using Instagram. The interview will take place in their home, at their desk or wherever they are most comfortable. Users will complete the activity on their mobile phone, preferably smart, with a connection to the Internet, and Instagram downloaded and ready-to-use.
 
-To complete the acivity, the interviewee will ask the user to scroll two opposing profiles. The first, with less than one hundred posts. The second, with more than five hundred posts.
+To complete the acivity, the interviewee will ask the user to scroll two opposing profiles. The first, with less than five hundred posts. The second, with more than one thousand posts.
 
 ---
 ### Process of Observation Method
