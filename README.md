@@ -22,12 +22,12 @@ To include.
 ---
 ### Interview
 
-Provide the link.
+Please click [here](https://drive.google.com/file/d/1ofuFEgPXSUT1DDBZQtjzyd3Xv9XomrKZ/view?usp=sharing) to listen to the interview.
 
 ---
 ### Transcript
 
-To include.
+Please click [here](https://docs.google.com/document/d/1T3ic0qLNtHrT-t2Vk86esmiakYLZSPEqvZxIiZGlOOA/edit?usp=sharing) to view the transcript of the interview.
 
 ---
 ### Reflection
